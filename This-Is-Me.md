@@ -1,0 +1,5 @@
+- 💪 Hi, I’m @Izhanm11
+- 🥰 I’m interested in cars, video games, and art
+- 🧠 I’m currently learning scratch
+- 🐈‍⬛ I’m looking to collaborate on anything programming and game releated lol
+- 📧 How to reach me: Email is: Super.izzy001@gmail.com
